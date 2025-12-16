@@ -1,4 +1,4 @@
-# EroMe Help – The Full Guide to Ero Me Access, Features & Safety
+# EroMe: Simple & Secure Platform for Sharing Adult Content
 
 ## Introduction
 
